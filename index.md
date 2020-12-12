@@ -1,3 +1,3 @@
-# Welcome to my blog
+# egXperience starting here
 
-I'm glad you are here. I plan to talk about ...
+While everybody sleeps our brave soldiers walking on the streets
